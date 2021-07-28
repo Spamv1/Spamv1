@@ -1,1 +1,4 @@
-- subscribe Keyzan GTPS ya 
+- Gunakan Dengan Bijak
+
+
+- Salam Sejahtera
